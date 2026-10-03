@@ -1,4 +1,4 @@
-## my notes 
+##notes 
 
 There are a few indian specific ingredients here that you might not have in your pantry. It's okay for you to skip them or substitute them as long as you can understand what they are adding to a curry. For example- traditionally butter chicken exclusively uses chillies from this region in India called Kashmir. The chillies are not spicy, and they have a deep red color which gives the curry the characteristic orange color. You can instead use smoked paprika. They give your curry this smoky touch which is different but nice. You can also use chipotle peppers which gives your curry a super earthy flavor. But I hope that you know how hot your chilllies are and how much you are comfortable with. Use this recipe as a  template to make a dish that satisfies your palette :D
 
