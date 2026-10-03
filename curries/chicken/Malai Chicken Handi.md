@@ -1,7 +1,4 @@
 
-
-**Serves:** 3–4 · **Prep:** 10 mins to marinate · **Cook:** 30 min
-
 ## Ingredients
 
 ### Marinade
@@ -13,8 +10,8 @@
 - ½ tsp white pepper
 - 1 tbsp lemon juice
 
-You can absolutely substitute white pepper with black pepper; toasted black pepper is even better. Black pepper gives the dish a more punch contrast in its flavor. White pepper gives you a smoother flavor with the sauce. 
-When you are marinating with lemon juice- do no let your meat sit for  more than 3-4 hours. The acid in the yoghurt and the lemon juice is too much for chicken and you can absolutely over tenderize your meat; this will result in your chicken breaking down while cooking and the pieces of meat will look visually stringy. tldr; marinate with yoghurt overnight or marinate yoghurt+lemon juice for 3-4 hours( but marinate for 30 mins minimum if in a pinch) 
+You can absolutely substitute white pepper with black pepper; toasted black pepper is even better. Black pepper gives the dish a more punchy contrast in its flavor. White pepper gives you a smoother flavor with the sauce. 
+When you are marinating with lemon juice- do no let your meat sit for  more than 3-4 hours. The acid in the yoghurt+lemon juice is too much for chicken and you can absolutely over tenderize your meat; this will result in your chicken breaking down while cooking and the pieces of meat will look visually stringy. tldr; marinate with yoghurt overnight or marinate yoghurt+lemon juice for 3-4 hours( but marinate for 30 mins minimum if in a pinch) 
 ### Gravy
 
 - 2 tbsp butter/oil/both
