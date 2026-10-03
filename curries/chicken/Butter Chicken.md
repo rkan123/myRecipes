@@ -59,8 +59,8 @@ If you are making this last minute; try to atleast give the meat 30 mins with yo
 ## Method
 
 1. **Marinate meat:** In a large bowl, mix the  oil, salt,chilli powder, coriander, cumin, turmeric, kasoori methi, amchur, black salt, ginger garlic paste,lime and yoghurt into a smooth paste. Add the chicken and coat it thoroughly. Cover with film and marinate in the fridge for at least 4 hours, ideally overnight.
-2. **Grill the chicken:** Skewer the chicken and grill over charcoal until cooked through with light charring at the edges. In an oven, use a rack at 250°C (480°F) or a broiler.
-	1. You can not skewer the meat as well and just leave the chicken on a baking tray/pan. But make sure to not overcrowd your pan as the yoghurt and meat will release a bunch of water. you want your meat to char; not boil. 
+2. **Grill the chicken:** Skewer the chicken and grill/bake until the surface is nicely charred- like brown to black but fully burnt. In an oven, use a rack at 250°C (480°F) or a broiler or your highest setting
+	1. You can choose to NOT skewer the meat as well and just leave the chicken on a baking tray/pan. But make sure to not overcrowd your pan as the yoghurt and meat will release a bunch of water. you want your meat to char; not boil. 
 	2. if you have a torch; just put your meat on a tray and blast the fuck out of it. You dont need to cook chicken here; just char the surface. 
 	3.  If this is too much effort; just add the marinated meat to the pot later.
 3. **Temper your spices and red chillies:** For the space; Add your ghee/oil  in a pot with the heat turned on low. Add the cumin seeds,cardamon, cloves ,cinammon and red chillies , and fry until they crackle. Make sure your heat is low as you dont want your spices to burn. You can add also add the spices while the oil is heating up
