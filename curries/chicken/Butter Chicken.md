@@ -9,7 +9,7 @@ Season your dish as you go. You added onions? add some salt! you put in tomatoes
 2. Salt also helps you cook. Salt helps draw out moisture which can be very beneficial. For example, while frying your onions. Salt helps draw out the moisture in the onions; which helps you cook and caramellize them much faster. 
 
 For marination. overnight marination is best. But if you are doing it overnight; use only yoghurt as your source of acid, and the lime only a couple mins before you cook your meat. 
-The acid is limes and the yoghurt tenderize your meat too much if left overnight and your meat will be mushy in your curry. 
+The acid in limes+yoghurt tenderize your meat too much if left overnight and your meat will be mushy in your curry. 
 4 hours with yoghurt + lemon juice is 90% as good as overnight with yoghurt 
 If you are making this last minute; try to atleast give the meat 30 mins with yoghurt+ lime juice. If you know what you are doing- you can also add papaya extract here to make it quick af.
 
