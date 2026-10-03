@@ -2,18 +2,18 @@
 
 ## notes 
 
-There are a few indian specific ingredients here that you might not have in your pantry. It's okay for you to skip them or substitute them as long as you can understand what they are adding to a curry. For example- traditionally butter chicken exclusively uses chillies from this region in India called Kashmir. The chillies are not spicy, and they have a deep red color which gives the curry the characteristic orange color. You can instead use smoked paprika. They give your curry this smoky touch which is different but nice. You can also use chipotle peppers which gives your curry a super earthy flavor. But I hope that you know how hot your chilllies are and how much you are comfortable with. Use this recipe as a  template to make a dish that satisfies your palette :D
+There are a few indian specific ingredients here that you might not have in your pantry. It's okay for you to skip them or substitute them as long as you can understand what they are adding to a curry. For example- traditionally butter chicken exclusively uses chillies from this region in India called Kashmir. The chillies are not spicy, and they have a deep red color which gives the curry the characteristic orange color. You can instead use smoked paprika. They give your curry this smoky touch which is different but nice. You can also use chipotle peppers which gives your curry a super earthy flavor. But I hope that you know how hot your chillies are and how much you are comfortable with. Use this recipe as a  template to make a dish that satisfies your palette :D
 
 You can also absolutely experiment with your spices. I like adding cloves, cardamoms, and cinammon sticks . You can explore those and also star anise; red/black pepper, fennel seeds, or whatever comes to your mind. YOU might make the next michelin star butter chicken; who knows right !? 
 
 Season your dish as you go. You added onions? add some salt! you put in tomatoes? add some salt! It is very beneficial to add salt in stages because 
 1. you season each stage and the salt has time to spread through the dish evenly. And you will also know how salty or bland your dish is at each stage. So you can add ingredients accordingly. If you put too much salt in your onions stage; then maybe you can add more tomatoes; or maybe add more meat to balance that out later. 
-2. Salt also helps you cook. Salt helps draw out moisture which can be very beneficial. For example, while frying your onions. Salt helps draw out the moisture in the onions; which helps you cook and caramellize them much faster. 
+2. Salt also helps you cook. Salt helps draw out moisture which can be very beneficial. For example, while frying your onions. Salt helps draw out the moisture in the onions; which helps you cook and caramelize them much faster. 
 
 For marination. overnight marination is best. But if you are doing it overnight; use only yoghurt as your source of acid, and add lime juice only a couple mins before you cook your meat. 
 The acid in limes+yoghurt tenderizes your meat too much if left overnight and your meat will be mushy when cooked.
 4 hours with yoghurt + lemon juice is 90% as good as overnight with yoghurt 
-If you are making this last minute; try to atleast give the meat 30 mins with yoghurt+ lime juice. If you know what you are doing- you can also add papaya extract here to make maarination quick af.
+If you are making this last minute; try to atleast give the meat 30 mins with yoghurt+ lime juice. If you know what you are doing- you can also add papaya extract here to make marination quick af.
 
 ## Ingredients
 
@@ -28,9 +28,9 @@ If you are making this last minute; try to atleast give the meat 30 mins with yo
 - 2 tsp coriander powder
 - 2 tsp cumin powder
 - 1 tsp turmeric powder.
-- 3 g kasoori methi ( this is optional. You can skip this in this in the marinade)
-- 3 g amchur powder( This is super optional)
-- 3 g black salt  (  Substitute this with a 1 tsp of MSG if you have it on hand. otherwise skip)
+- 1 palmful of kasoori methi ( this is optional. You can skip this in this in the marinade)
+- 1/2 tsp amchur powder( This is super optional)
+- 1/2 tsp black salt  (  Substitute this with a 1 tsp of MSG if you have it on hand. otherwise skip)
 - 200 g yoghurt ( any acidic plain yoghurt variant is fine.)
 
 
@@ -50,7 +50,7 @@ If you are making this last minute; try to atleast give the meat 30 mins with yo
 - 1/2 inch cinammon stick
 - 1000 g  tomatoes. ( i really love using canned san marzano tomatoes )
 - a handful of roasted cashew nuts( idk like 15-20 cashews maybe)
-- 50 g coriander leaves, roughly chopped( if you have them. otherwise parsely with lemon zest and juice added to substitute)
+- 1 bunch of coriander leaves, roughly chopped( if you have them. otherwise parsely with lemon zest and juice added to substitute)
 - Salt to taste
 - 100 g double cream ( or as much as you want;) ) 
 - 80 g salted butter
