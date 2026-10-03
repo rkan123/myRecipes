@@ -6,7 +6,7 @@ You can also absolutely experiment with your spices. I like adding cloves, carda
 
 Season your dish as you go. You added onions? add some salt! you put in tomatoes? add some salt! It is very beneficial to add salt in stages because 
 1. you will season each stage and the salt has time to spread through the dish evenly. And you will also know how salty or bland your dish is at each stage. So you can add ingredients accordingly. If you put too much salt in your onions stage; then maybe you can add more tomatoes; or maybe add more meat to balance that out later. 
-2. Salt also helps you cook. Salt helps draw out moisture which can be very beneficial. For example, while frying your onions. Salt helps draw out the moisture in the onions; which helps you cook and caramllize them much faster. 
+2. Salt also helps you cook. Salt helps draw out moisture which can be very beneficial. For example, while frying your onions. Salt helps draw out the moisture in the onions; which helps you cook and caramellize them much faster. 
 
 For marination. overnight marination is best. But if you are doing it overnight; use only yoghurt as your source of acid, and the lime only a couple mins before you cook your meat. 
 The acid is limes and the yoghurt tenderize your meat too much if left overnight and your meat will be mushy in your curry. 
