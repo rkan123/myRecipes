@@ -20,7 +20,7 @@ If you are making this last minute; try to atleast give the meat 30 mins with yo
 - 1 kg chicken thigh, skinless and boneless
 - 2 tbsp ginger-garlic paste
 - 2 tsp  salt
-- 1/2 a lime squeezed
+- 1/2  lime (squeezed)
 - 1 tbsp oil ( any oil is fine but neutral flavored is preferred)
 - 2 tsp Kashmiri chilli powder( or any chilli powder that you have. A variant that is not very hot but has a nice red color is good)
 - 2 tsp coriander powder
