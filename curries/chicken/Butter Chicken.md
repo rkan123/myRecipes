@@ -48,12 +48,12 @@ If you are making this last minute; try to atleast give the meat 30 mins with yo
 - 1/2 inch cinammon stick
 - 1000 g  tomatoes. ( i really love using canned san marzano tomatoes )
 - a handful of roasted cashew nuts( idk like 15-20 cashews maybe)
-- 50 g coriander , roughly chopped( if you have them. otherwise parsely with lemon zest and juice added to substitute)
+- 50 g coriander leaves, roughly chopped( if you have them. otherwise parsely with lemon zest and juice added to substitute)
 - Salt to taste
-- 100 g double cream ( or as much as you ;) ) 
+- 100 g double cream ( or as much as you want;) ) 
 - 80 g salted butter
-- 3 g kasoori methi ( This is dried fenugreek leaves. Its an amazing ingredient but it kinda smells like weed lol )
-- -5 g garam masala ( whatever variant of garam masala you can find. If you cant find any- you can make some. or skip this entirely.)
+- a handful of kasoori methi ( This is dried fenugreek leaves. Its an amazing ingredient but it kinda smells like weed lol )
+- 5 g garam masala ( whatever variant of garam masala you can find. If you cant find any- you can make some. or skip this entirely.)
 - Honey to taste (about 1 tsp to start) or sugar
 
 ## Method
